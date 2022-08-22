@@ -1,1 +1,1 @@
-Doing hard things is part of the game.
+Doing hard things is the game plan.
